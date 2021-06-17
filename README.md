@@ -1,1 +1,1 @@
-# Quan-tr-d-n-CNTT
+# Quan trị dự án CNTT
